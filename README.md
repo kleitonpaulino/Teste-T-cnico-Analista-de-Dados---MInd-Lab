@@ -1,0 +1,1 @@
+# Teste-T-cnico-Analista-de-Dados---MInd-Lab
